@@ -1,4 +1,4 @@
 Hello guys...!
 
-My self Bakshu working as Devops Engineer , I am passionate & exited software engineer.
+My self Bakshu working as Devops Engineer , I am fully passionate & exited to develop new things & always ready to learn new things. 
 
